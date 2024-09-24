@@ -1,0 +1,1 @@
+Prva Odin vjezba, nauciti sto je vise moguce iz sljedecih vjezbi.
